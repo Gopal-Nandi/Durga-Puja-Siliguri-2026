@@ -1,1 +1,0 @@
-# Durga-Puja-Siliguri-2026
